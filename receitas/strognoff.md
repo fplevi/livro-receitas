@@ -1,1 +1,0 @@
-#Strognoff de Frango
